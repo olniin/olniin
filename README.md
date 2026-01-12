@@ -1,3 +1,3 @@
-## Heya! 🍁
+## _Heya!_ 🍁
 
 Yay, a cookie! 😄
